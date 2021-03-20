@@ -1,11 +1,10 @@
-# Ego and Identity by Jann
 
-# Ego and Identity by Jann
+# Ego and Identity
 Blog - Values, Processes, Business, World Views.
 
-Ego and Identity by Jann
 
-" Your ego is your conscious mind, the part of your identity that you consider your "self." If you say someone has "a big ego," then you are saying he is too full of himself."
+
+"Your ego is your conscious mind, the part of your identity that you consider your "self." If you say someone has "a big ego," then you are saying he is too full of himself."
 
 "Your identity is what makes you "you." If you are having "an identity crisis," then I guess you can't figure out who you are."
 
@@ -27,7 +26,7 @@ Do you sense ego recently?
 
 Sometimes thoughts are running  "No, that's not what i mean" "That's not always the case" "and who are you?" 
 
-When we turn our head or raise our eyebrows, something smells fishy and must ring a bell so we feel "what the hell?"🙄
+When we turn our head or raise our eyebrows, it must ring a bell so we feel "what the hell?"🙄
 
 It may be your throat acting weird that's keeping you uncomfortable, or it can be a foreign beliefs that is beginning to get inside...
 
@@ -61,9 +60,11 @@ Though there is a saying we can't give what we don't have. That's true, but it 
 
 Because people are sensitive to life forces. 
 
-Ff someone is helping, warm, accepting and coherent it brings up our positive lenses, get curious about something positive, free and exciting, and we then see inspiring works, notable processes and wonderful creations.
+If someone is helping, warm, accepting and coherent it brings up our positive lenses, get curious about something positive, free and exciting, and we then see inspiring works, notable processes and wonderful creations.
 
-Ff incoherent, we feel off and feel there's something went wrong, in a moment we look things negativity making our lenses critical and closed. we feel limited, feeling dragged into some negative and uncomfortable feelings. then we just don't want to talk anymore.. 
+If incoherent, we feel off and feel there's something went wrong, in a moment we look things negativity making our lenses critical and closed. we feel limited, feeling dragged into some negative and uncomfortable feelings. then we just don't want to talk anymore.. 
+
+Again, people are sensitive to life forces because,
 
 We are designed to feel the vibration of coherence and non coherence. in fact all matter is a vibration so we all swim in waves and frequencies. the more we tune in to coherence and higher frequencies the more we better understand the universe and we better position our ego and our identity. 
 
@@ -71,7 +72,7 @@ You are certainly free to embrace your own beliefs... but my hope is, lets all 
 
 And if we are still confused? or we fail... Just be kind to yourself, just do what you want or create who you wanted to be and keep the rewards flowing. 
 
-I'm with you and there are many more chances we unfold understanding, beauty and joy together. 
+I'm with you and there are many more chances we unfold beauty and joy together. 
 
 I wanna see you around. 😉
 
