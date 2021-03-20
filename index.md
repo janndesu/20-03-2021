@@ -1,4 +1,3 @@
-#
 
 " Your ego is your conscious mind, the part of your identity that you consider your "self." If you say someone has "a big ego," then you are saying he is too full of himself."
 
@@ -12,7 +11,6 @@ IDENTITY - the state or fact of remaining the same one or ones, as under varying
 
 dictionary.com
 
-##
 
 Hi everyone! I'm Jann and onto Ego and Identity.
 
