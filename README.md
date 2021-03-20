@@ -11,6 +11,8 @@ Blog - Values, Processes, Business, World Views.
 vocabulary.com
 
 
+
+
 EGO - the “I” or self of any person; a person as thinking, feeling, and willing, and distinguishing itself from the selves of others and from objects of its thought.
 
 IDENTITY - the state or fact of remaining the same one or ones, as under varying aspects or conditions.
@@ -24,20 +26,14 @@ Hi! I'm Jann and onto Ego and Identity.
 
 Do you sense ego recently?
 
-Sometimes thoughts are running  "No, that's not what i mean" "That's not always the case" "and who are you?" 
-
-When we turn our head or raise our eyebrows, it must ring a bell so we feel "what the hell?"🙄
-
-It may be your throat acting weird that's keeping you uncomfortable, or it can be a foreign beliefs that is beginning to get inside...
-
-I'll open up a bit to talk about Ego and Identity and finding ways to map our understanding using the lens of positivity and negativity. 
-
 We have up there the definitions of ego and identity. I would say ego is who we consciously think we are and identity is who we identifiably are.
 
 Ego can be the echo of our achievements, by definition is the feeling, the thinking, the willing and the juice of who we are. But when we focus on working on achieving a goal, we direct all our energies into achieving it so we can't produce ego at the same time. The juicy part of our achievements is what we call positive outcomes and feelings, and the craving to drink the juice over and over is called the ego. 
 You might bringing up ego if only you feel conscious about your past and future achievements. you only feel conscious about the past and future achievements when you bring up your ego. and it is not a problem, in fact, it is fun. 
 
 Identity on the side is the distinct conditions of who we are. It defines who we are and who we are not. It is our name, our history, and our message. It is the creation we do for our selves and the way we brand it. 
+
+I'll open up a bit to talk about Ego and Identity and finding ways to map our understanding using the lens of positivity and negativity. 
 
 When we lose sight of our friend and we wanted to inform the staff to find her, and we wanna bring up how unique she is and her style, her clothes and if she does wear a gold you can say she's wearing earrings or a necklace made of gold. we also would you say she likes reading books so it is possible to find her in every book store... and etc. we would say everything about her just to find her. 
 
@@ -46,17 +42,17 @@ It is absolutely directing her every physical feature, every choice of style, ev
 Personal information and advertisements are so important to make people informed, relieved and confident. It is an initiative from someone who wanted to communicate their values and styles with the purpose of helping other people as opposed to just saying our own achievements sometimes we end up thinking "so what about your achievements?" 
 there must be a positive purpose. 
 
-There are two perspectives we can look at things for us to flow... 
+There are two perspectives we can look things to flow... 
 
 1. Use our identity to advertise yourself to help specially yourself. 
 2. Use our identity to advertise yourself to help specially others. 
 
-We of course choose no. 2. although it may sound counter intuitive and tiring. 
+We of course choose no. 2. although it may sound counter intuitive and we open up to vulnerablility. 
 
 It is a good perspective to keep that in building identity and keeping balance of our ego, the key is giving up ourselves for others. 
 we give up our time and words to encourage others, we give up our penny to buy flowers for a friend... 
 
-Though there is a saying we can't give what we don't have. That's true, but it doesn't have to be that way all the time, sometimes we can delegate it or drop it with helping motives and kind communication. 
+Though there is a saying "we can't give what we don't have". That's true, but it doesn't have to be that way all the time, sometimes we can delegate it or drop it with helping motives and kind communication. 
 
 Because people are sensitive to life forces. 
 
