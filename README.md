@@ -4,18 +4,18 @@ Blog - Values, Processes, Business, World Views.
 
 
 
-"Your ego is your conscious mind, the part of your identity that you consider your "self." If you say someone has "a big ego," then you are saying he is too full of himself."
+*"Your ego is your conscious mind, the part of your identity that you consider your "self." If you say someone has "a big ego," then you are saying he is too full of himself."
 
-"Your identity is what makes you "you." If you are having "an identity crisis," then I guess you can't figure out who you are."
+"Your identity is what makes you "you." If you are having "an identity crisis," then I guess you can't figure out who you are."*
 
 vocabulary.com
 
 
 
 
-EGO - the “I” or self of any person; a person as thinking, feeling, and willing, and distinguishing itself from the selves of others and from objects of its thought.
+*EGO - the “I” or self of any person; a person as thinking, feeling, and willing, and distinguishing itself from the selves of others and from objects of its thought.
 
-IDENTITY - the state or fact of remaining the same one or ones, as under varying aspects or conditions.
+IDENTITY - the state or fact of remaining the same one or ones, as under varying aspects or conditions.*
 
 dictionary.com
 
