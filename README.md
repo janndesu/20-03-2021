@@ -1,6 +1,7 @@
 # blog
 Blog - Values, Processes, Business, World Views.
 
+Ego and Identity by Jann
 
 
 " Your ego is your conscious mind, the part of your identity that you consider your "self." If you say someone has "a big ego," then you are saying he is too full of himself."
