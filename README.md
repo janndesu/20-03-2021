@@ -18,8 +18,6 @@ dictionary.com
 
 
 
-
-
 Hi everyone! I'm Jann and onto Ego and Identity.
 
 Do you sense ego recently?
