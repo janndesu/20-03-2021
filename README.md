@@ -24,9 +24,11 @@ Hi everyone! I'm Jann and onto Ego and Identity.
 
 Do you sense ego recently?
 
-Sometimes thoughts are running  "no, that's not what i mean" "That's not always the case" "and who are you?" 
-when we turn our head or raise our eyebrows, something smells fishy and must ring a bell so we feel "what a hell?"🙄
-it may be your throat acting weird that's keeping you uncomfortable, or it can be a foreign beliefs that is beginning to get inside...
+Sometimes thoughts are running  "No, that's not what i mean" "That's not always the case" "and who are you?" 
+
+When we turn our head or raise our eyebrows, something smells fishy and must ring a bell so we feel "what the hell?"🙄
+
+It may be your throat acting weird that's keeping you uncomfortable, or it can be a foreign beliefs that is beginning to get inside...
 
 I'll open up a bit to talk about Ego and Identity and finding ways to map our understanding using the lens of positivity and negativity. 
 
